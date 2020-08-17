@@ -1,1 +1,1 @@
-# PG-Diploma-ML-and-AI---IIITB
+# MS & PG-Diploma in ML-and-AI-- LJMU & IIITB
